@@ -1,3 +1,3 @@
 # Ramadan
 
-### ramadan in tomorrow 🎉
+### ramadan is tomorrow 🎉
